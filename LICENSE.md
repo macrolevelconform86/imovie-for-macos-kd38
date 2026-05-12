@@ -1,4 +1,4 @@
-# 
+# Get the ultimate iMovie for macOS automation with elite iMovie for macOS Automation | text-animation + subtitle-generator. Featuring text-animation and subtitle-generator, it's
 
 
 
